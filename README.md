@@ -9,15 +9,15 @@
 
 ❤Python là một trong những ngôn ngữ lập trình mình học được.
 ## 🔥Sau đây là những bài tập quan trọng mà mình đã làm và up ở trên:
--BTCHUONG1
+*-BTCHUONG1*
 
--BTCHUONG2MD
+*-BTCHUONG2MD*
 
--BTCHUONG3MD
+*-BTCHUONG3MD*
 
--BTCHUONG4MD
+*-BTCHUONG4MD*
 
--BTCHUONG5MD
+*-BTCHUONG5MD*
 
 ***🥰Coming soon~***
 
