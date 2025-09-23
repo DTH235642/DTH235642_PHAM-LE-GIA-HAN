@@ -21,4 +21,4 @@
 
 ***🥰Coming soon~***
 
-**Thank u for reading~**
+**THANK U FOR READING╰(*°▽°*)╯**
