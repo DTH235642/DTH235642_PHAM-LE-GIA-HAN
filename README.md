@@ -7,7 +7,7 @@
 
 ❤Ngoài ra mình cũng thích nấu ăn đặc biệt là nấu chè và gói bánh:>>
 
-❤Python là một trong những ngôn ngữ lập trình mình học được.
+❤**Python** là một trong những ngôn ngữ lập trình mình học được.
 ## 🔥Sau đây là những bài tập quan trọng mà mình đã làm và up ở trên:
 *-BTCHUONG1*
 
