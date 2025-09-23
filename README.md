@@ -13,3 +13,4 @@
 -BTCHUONG5MD
 
 ***🥰Coming soon~***
+<span style="color:pink">**Thank u for reading~**</span>
